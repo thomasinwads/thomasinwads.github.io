@@ -1,1 +1,1 @@
-# thomisinwads.github.io
+# general
